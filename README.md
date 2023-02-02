@@ -1,1 +1,1 @@
-# saraksts
+1. Nagu vīle/apgrieznis.
